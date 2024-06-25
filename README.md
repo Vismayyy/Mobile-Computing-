@@ -1,1 +1,2 @@
-# Mobile-Computing-
+# Mobile-Computing-SEMESTER 6
+UNIVERSITY OF MUMBAI
